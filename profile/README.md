@@ -46,4 +46,4 @@ If you have any questions about any of our services, do not hesitate to reach ou
 
 DISCLAMER: We are not responsable for stolen properties this is simply a host made for eaglercraft hosting haven is not affilated offically with eaglercraft development & will not be doing so anytime soon
 
-© 2025 Hosting Haven. All rights reserved.
+© 2026 Hosting Haven. All rights reserved.
