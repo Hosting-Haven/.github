@@ -31,7 +31,7 @@ KindKid
 
 RiyadTheCoder aka Bahabryra
 
-TheHopefulLover (R.I.P) :')
+TheHopefulLover/TheDarkDev (R.I.P) :')
 
 Voidpulse
 
